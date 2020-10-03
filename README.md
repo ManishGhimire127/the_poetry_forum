@@ -147,7 +147,9 @@ Let's do this!
       Everyone is trying their best
       To get that T-shirt heist.
       
-      
+      Hi, there
+      Learn to lead
+      Born to Rule 
       
       
       
